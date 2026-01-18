@@ -280,3 +280,4 @@ First phase of Indian National Movement's can be further divided into two phases
 - Ghadar Party carried activities mainly in North America. Berlin Committee in Europe sent missions to Baghdad, Persia, Turkey, Kabul to work among Indian prisoners of war and to incite anti-British sentiments.
 - Raja Mahendra Pratap Singh, Mohammed Barkatullah and Obaidullah Sindhi went to Kabul to establish a Provisional Indian Government' with the help of Prince Amanullah in 1915.
 - Indian soldiers in Singapore revolted against the British government on 15th February, 1915. It's leaders were Jamadar Chisti Khan, Jamadar Abdul Ganí and Subedar Daud Khan.
+
