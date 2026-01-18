@@ -202,6 +202,81 @@ First phase of Indian National Movement's can be further divided into two phases
 - This was the culmination of transfer of control of British India from the East India Company to the crown.
 - The Darbar in December 1911 was held to Commemorate the coronation of George V and Mary of Teck and to allow their proclamation as Emperor and Empress of India.
 - In this Darbar, annulment of partition of Bengal and he transfer of India's capital from Calcutta to Delhi Were announced.
-## First phase of revolutionary activities
-
-## World War 1 and Nationalist's response
+## First phase of revolutionary activities (1907-17)
+- The beginning of revolutionary ideology and activities in Indian were the result of internal and external factors.
+### Revolutionary Programme
+- The revolutionaries did not adopted a violent mass revolution throughout the country at this stage. Instead, they opted to follow in the footsteps of Russian or the Irish nationalists.
+- This methodology involved individual heroic actions, such as:
+  - Organising assassinations of unpopular officials, traitors and informers among the revolutionaries themselves.
+  - Conducting Swadeshi dacoities to raise funds for revolutionary activities (during the First World War), organising military conspiracies with expectation of help from the enemies of Britain.
+#### Emergence of Revolutionary Movement
+- Disappointed with the outcomes of the work of moderates of Congress, extremists emerged which gave birth to the movement.
+- They were inspired by Western ideology. They used to publish literature for the promotion of their ideas.
+- The major centres of early phase of revolutionary movement was in Bengal, Maharashtra, Punjab, Uttar Pradesh and almost entire parts of East India.
+- Objectives of the Movement
+  - The idea was to strike terror in the hearts of the rulers.
+  - Arouse people and remove the fear of authority from their minds.
+  - The revolutionaries intended to inspire the people by appealing to their patriotism, especially the idealistic youth.
+### Revolutionary Activities
+- The description of revolutionary activities in different parts of India is given below:
+#### Bengal
+- By the 1870s, Calcutta's student community was mixed with secret societies, but these were not as active.
+- The first revolutionary groups were organised in 1902 in Midnapore, in Bengal under Jnanendranath Basu, and in Calcutta.
+- The Anushilan Samiti was founded by Promotha Mitter and including Jatindranath Banerjee, Barindra Kumar Ghosh and others.
+- Activities of these societies were limited to giving physical and moral training to the members and were not that significant till 1907.
+- In April 1906, an inner circle within Anushilan with Barindra Kumar Ghosh, Bhupendranath Dutta started the weekly magazine Yugantar.
+- In 1906, Rashbehari Bose and Sachin Sanyal organised a secret society covering Punjab, Delhi and United Province. Hemachandra Kanungo went abroad for military and political training.
+- The Yugantar group made an attempt on the life of a very unpopular British official, Sir Fuller (the first Lt. Governor of the new province of Eastern Bengal and Assam).
+- They attempted to derail the train on which the Lieutenant-Governor, Sir Andrew Fraser, was travelling.
+- Dacca Anushilan under Pulin Das did Barrah dacoity to raise funds for revolutionary activities.
+#### Alipore Bomb Conspiracy Case (1908)
+- The 'Alipore Bomb Case' was related to the assassination attempt against Douglas Kingsford, who was an unpopular British Chief Magistrate. He was the target of the bomb thrown at Muzaffarpur (Northern Bihar).
+- Two young revolutionists Prafulla Chaki and Khudiram Bose threw bomb. However, the carriage at which the bomb was targeted not contained Kingsford, but two British women, who died in the attack.
+- The British Governmernt arrested Sri Aurobindo, Barindra Ghose and many young revolutionaries. They were charged with 'Conspiracy' or 'waging war against the King'. They were all members of the Anushilan Samiti in Calcutta.
+- Chaki committed suicide while Bose, then only 18 years of age, was caught and sentenced to death by hanging. Aurobindo Ghose was released due to lack of evidence and others served life-terms in prison.
+### Maharashtra
+- Revolutionary activities here was the organisation of the Ramosi Peasant Force by Vasudev Balwant Phadke in 1879.
+- It aimed to remove the British using an armed revolt by and breaking communication lines. It hoped to raise funds for its activities through dacoities. It was stopped at the very start.
+- During the 1890s, Tilak began a spirit of militant nationalism, through Ganapati and Shivaji festivals and his journals Kesari and Maharaita. Two of his disciples- the Chapekar brothers, Damodar and Balkrishna murdered the Plague Commissioner of Poona, Rand and one Lt. Ayerst in 1897.
+- Savarkar and his brother organised Mitra Mela, a secret society, in 1899 which merged with Abhinay Bharat (imitating Mazzinni's Young Italy) in 1904. With this, Nasik, Poona and Bombay became Centres of bomb-making.
+- In 1909, Jackson, the District Magistrate of Nasik, was killed by Anant Lakshman; who was a member of Abhinav Bharat.
+### Punjab
+- Reason of Extremism in Punjab was due to issues of frequent famines and rise in land revenue, and irrigation tax, practice of begar by zamindars, and by the events in Bengal.
+- Leaders like, Lala Lajpat Rai brought out Punjabee (with its motto of all help at any cost) and Ajit Singh (Bhagat Singh's uncle) who orgnised the extremist Anjuman-Mohisban-Watan in Lahore with its journal Bharat Mata.
+- Ajit Singh's group turned to extremism and was active in urging non-payment of revenue and water rates among Chenab colonists and Bari Doab peasants. Otheleaders included Aga Haider, Syed Haider Raza, Bhai Parmanand. The radical Urdu poet, Lalchanu talak joined the movement.
+- The British government in May 1907 banned political gathering and Lala Lajpat Rai and Ajit Singh were deported and the movement died down here.
+### Revolutionary Activities Abroad
+- The need for shelter, possibility of bringing out revolutionary literature that would not be under Press Acts, and search for arms took revolutionaries abroad.
+- Shaymji Krishnavarma started India House, in 1905 in London, it was a student resident for radical youtn students. VD Savarkar and Lala Hardayal became members of India House.
+- Madanlal Dhingra assassinated India Office bureaucrat Curzon Wylie in 1909.
+- Madam Bhikaji Cama, started Indian Home Rule Movement in 1916 in Belgavi and established a centre in France and brought out Vande Bharat newspaper. It was operated by Ajit Singh.
+- Virendranath Chattopadhyay did his activities from Berlin in 1909. Along with him, Bhupendranath Dutta, Lala Hardayal and others, the Berlin Committee for Indian independence was established in 1915.
+- It was helped by German officials and was known as the Zimmerman Plan. It was to use and mobilise Indians in foreign countries and arms, and send volunteers to India for rebellion against the British.
+#### The Ghadar
+- It was a revolutionary group organised around a weekly newspaper, The Ghadar with its headquarters at San Francisco and branches along the coast of USA and in the far East. The Ghadar was established in 1913.
+- The Ghadar Programme intended to organise asssassinations of officials, publish revolutionary and anti imperialist literature, work among Indian troops abroad, procure arms and bring about a revolt in all British colonies.
+- The revolutionaries included mainly ex-soldiers and peasants who had migrated from the Punjab to the USA and Canada in search of better employment opportunities.
+- Pre-Ghadar revolutionary activities were carried out by Ramdas Puri, GDKumar, Taraknath Das, Sohan Singh Bhakna and Lala Hardayal from 1911.
+- Swadesh Sevak Home was set up in Vancouver, and United India House' at Seattle. Prominent Ghadar leaders were Lala Hardayal, Ramchandra, Bhagwan Singh, Kartar Singh Sarabha, Barkatullah and Bhai Parmanand.
+- Defence of India Act, 1915 was the chief and most draconian instrument used by the British to counter the Ghadar Movement.
+#### Komagata Maru Incident
+- In the year 1914, Komagata Maru- a ship chartered from Singapore carrying Sikh and Punjabi Muslims were denied entry into Canada and forced to return to India.
+- The British government tried to detain the immigrants at Calcutta, in order to transport them to Punjab. The immigrants refused to give in. A tussle ensued in which 22 immigrants lost lives.
+- The Ghadar leaders were angry by this incident. They planned to launcha violent attack to expel the British. Kartar Singh Saraba, Raghubar Dayal Gupta, Rashbeharí Bose and Sachin Sanyal were the prominent leaders involved in the attack.
+- 21st February, 1915 was fixed as the date of attack. However, the British got to know about the attack, made pre emptive arrests and suppressed the movement.
+#### Decline of Revolutionary Activities
+- There was a temporary decline in revolutionary activities due to various seasons. These were as follows:
+  - Release of prisoners held under the Defence of india Rules, after the World War 1.
+  - Montagu's statement of August 1917 offered sorne conciliations to Indians.
+  - Entry of Gandhiji in the freedom struggle and his new methods of struggle.
+## World VWar I and Nationalist's Response
+- In First World War (1914-1919), Britain allied with France, Russia, USA, Italy and Japan against Germany, Austria Hungary and Turkey.
+- Nationalists leaders responded to British participation in war in three ways:
+  - Moderates were in favour of offering support to Britishers in war as a matter of duty.
+  - Extremists including Tilak supported the war in misbelief that the British Government would provide self-government to Indians as payback.
+  - The revolutionaries groups decided to use the opportunity to wage a war on the British and free the country.
+- Indians failed to realise while supporting Britishers in war efforts that the British were fighting only to safeguard their colonies and investments and markets.
+#### Revolutionary Activities done in War Times
+- Ghadar Party carried activities mainly in North America. Berlin Committee in Europe sent missions to Baghdad, Persia, Turkey, Kabul to work among Indian prisoners of war and to incite anti-British sentiments.
+- Raja Mahendra Pratap Singh, Mohammed Barkatullah and Obaidullah Sindhi went to Kabul to establish a Provisional Indian Government' with the help of Prince Amanullah in 1915.
+- Indian soldiers in Singapore revolted against the British government on 15th February, 1915. It's leaders were Jamadar Chisti Khan, Jamadar Abdul Ganí and Subedar Daud Khan.
