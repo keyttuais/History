@@ -133,30 +133,75 @@ First phase of Indian National Movement's can be further divided into two phases
 - It laid the foundation for national struggle which was to grow and it provided a political and economnic programme on which later political struggle could be based.
 ### Extremists Phase (1905-1919) 
 - Over the years, the trend of radical thoughts grew and an extrenmist approach to national movements started to grow from the 1890s. By 1905 onwards, it took a concrete shape.
-#### Contributions of Moderates in Indian National Movement
-
-### Extremists Phase (1905-1919)
-
+- Leaders of this school of thought included Raj Narain Bose, Aswini Kumnar Datta, Aurobindo Ghosh, Bipin Chandra Pal in Bengal, and Vishnu Shastri Chiplunkar and Tilak in Maharashtra.
 #### Reasons for Growth of Extremism
-
+- When the British Government was not Conceding to important demands, many of the political leaders started to feel that only an Indian Government could bring India on a path of progress attracted more and more people.
+- In the years between 1896 and 1900, over 90 lakhs died because of severe famines. Bubonic plague affected large areas of Deccan, the British government failed to provide major relief and help in these areas.
+- The British did not pay attention to people in distress, leaders in the Indian National Congress (INC) felt politically disappointed.
+- Spread of education among the masses led to increased awareness. The rising unemployment among the educated led their attention to poverty and underdevelopment under British rule.
+- International events in the 19th century encouraged extremists in India also. Progress made by Japan after 1868 and its emergence as an industrial power opened the eyes of Indians. They realised that economic progress was possible even by an Asian country without any external help.
+- The defeat of the Italian army by Ethiopians (1896), the Boer Wars (1899-1902) where the British forces defeated and Japan's victory over Russia (1905) demolished myths of European invincibility.
+- Also, the nationalists were inspired by the nationalist movements worldwide in Ireland, Russia, Egypt, Turkey, Persia and China.
+- The Indians realised that a uniform spirit of people with will to make sacrifices could take on the mightiest of empires.
+- Reacting to increasing Westernisation, the new leadership felt the stranglehold of excessive Westernisation and sensed colonial designs to submerge the Indian national identity in the British Empire.
+- The intellectual and moral inspiration of the new leadership was Indian intellectuals like Swami Vivekananda, Bankim Chandra Chatterjee and Swami Dayanand Saraswati.
+- They inspired many young nationalists with their forceful and articulate arguments, painting India's past in brighter colours than the British ideologies had.
 #### Partition of Bengal, 1905
-
+- On 16th October, 1905, Lord Curzon had divided Bengal into Eastern Bengal (with Assam) and the rest of Bengal.
+- The decision had come after Lord Curzon claimed that Bengal was too large to be governed effectively.
+- The partition separated the largely Muslim Eastern areas from the largely Hindu Western areas. lt was definitely the 'divide and rule' policy for the Indians and the national leaders outraged about the fact that the British Government turning native population against itself in order to rule.
+- Bengali Hindus were at the forefront of political agitation. Following the partition, an Anti-British movement began. This involved non-violent and violent protests and boycotts. The Indiarn National Congress began the Swadeshi Movement.
 #### Swadeshi and Boycott Movement
-
+- The main reason for partition of Bengal was to weaken the political struggle whose centre was in Bengal.
+- Lord Curzon tried to favour the Muslims by announcing that Dacca (Dhaka) would be new capital of Muslim majority province.
+- With the announcement of partition on 7th August, 1905, a Resolution of Boycott was announced in Calcutta town hall and the formal proclamation of Swadeshi Movement was made.
+- On 16th October, 1905, the partition came into force, this day was observed as a day of mourning throughout Bengal.
+- People bathed in Ganga and walked barefoot singing Vande Mataram which became the theme song of the movement.
+- People tied rakhis on each other's hand as a symbol of unity. Surendranath Banerjee and Anand Mohan Bose addressed the gathering.
 #### Position of Congress
-
+- Under the Presidentship of Gopal Krishna Gokhale, Congress in 1905, condemned partition and supported Anti Partition and Swadeshi Movement.
+- In 1906, under the Presidentship of Dadabhai Naoroji the goal of Congress was declared as the 'self-government' or Swaraj.
 #### Movement under Extremist Leadership
-
+- Under Extremist leaders, boycott of foreign goods, public meetings and processions were organised.
+- Samiti or corps of volunteers generated awareness. They tried to arise the sentiments of the public by songs, lectures, training in swadeshi crafts and organising courts.
+- Self-reliance or Atma Shakti was encouraged, emphasis was placed on national dignity, honour, and social and economic regemeration of villages.
+- A Swadeshi Programme on National Education was planned. Bengal National College was set up in 1906 (Aurobindo Ghosh as its Principal), inspired by Tagore's Shantiniketan.
+- On 15th August, 1906, National Council of Education was set up Satish Chandra Mukherjee to organise National Education - literary, scientific and technical. Education was to be imparted in the vernacular medium. Bengal Institute of Technology was set up for technical education.
+- Swadeshi (Indigenous) Enterprises such as : Swadeshi textile mills, soap and match factories, tanneries, banks. insurance companies, shops, etc were set up. VO Chidambaram Pillai set up the Swadeshi Steam Navigation Company at Tuticorin.
+- Rabindranath Tagore wrote Amar Sonar Bangla, Subramania Bharati wrote Swadesha Geetham to arouse national sentiments.
+- Tilak used Ganapati and Shivaji festival as a medium of propagation of nationalist ideas. In Bengal, traditional folk theatres were used for this purpose.
 #### Participation of Masses
-
-#### Supression of Movement
-
+- There was mass participation of students, and women in the Swadeshi Movement. Labour unions organised strikes in Bengal, Punjab and Tamil Nadu. So, the social base of the movement had increased.
+- Muslim of upper and mildle caste didn't participate in the nnorement. People like Nawab Salimullah Dacca spperted the Bengal partition.
+#### Suppression of the Movement
+- The British Govenment adopted a harsh attiude towards the agitators. lndigenous activists were prosecuted and jailed.
+- To end the participation of students in the Swadeshi Movement, the British Governument, on 22nd October, 1905, the Carlyle Circular was implemented.
+- Under this, grants and scholarships given to educational institutions were to be stopped. The students were even given corporal punishment.
+- In December 1908, 9 1leaders of Bengal were expelled from the country by the police at the Bengal Provincial Conference held at Barisal in April, 1900. Among them were Krishna Kumar Mitra and Ashwini Kumar Datta.
+- After the riots in Punjab, Lala Lajpat Rai and Ajit Singh were expelled from the country.
+- The movement failed to create an effective organisation or a party structure. The movement was rendered leaderless with most of the leaders either arrested or deported by 1908 and with Aurobindo Ghosh and Bipin Chandra Pal retiring from active politics.
+- Internal differences among leaders, magnified by the Surat Split (1907) also affected the movement.
+- The movement aroused the people but did not know how to use the newly released energy or how to find new forms to give expression to popular resentment.
 #### Establishment of Muslim League (1906)
-
+- Partition of Bengal became the biggest reason for the split between Hindu and Muslim communities in India.
+- The Muslim delegation under the leadership of Aga Khan met the then Viceroy Lord Minto and demanded a special status for Muslims.
+- In the year 1906, Muslim League was established in Dhaka under the leadership of Salimulla Khan and Aga Khan, The first President of the League was Waqar-ul-Mulk Mustaq Hussain.
+- Between the years 1905 to 1907, the mutual differences of extremist and liberal ideas grew. Moreover, the leaders of the Extremist Party did not believe in the ability of the Moderates to negotiate with the British Government.
+- In the year 1905, in the Banaras Session of the Congress, both the parties reached the edge of split over the post of President.
+- In the conference, Tilak wanted to make Lala Lajpat Pai the President and Bipin Chandra Pal wanted to make Tilak the President. This possibility was averted with Dadabhai Naoroji becoming the President.
 #### Surat Split (1907)
-
+- Already the tensions were high between the two groups as they both had different thoughts. Moderates didn't want to antagonise the British as council reforms were coming up. Extremists didn't realise moderates could be their defence line in case of any repression by British Officials.
+- The Extremists wanted the 1907 session in Nagpur with Tilak or Lajpat Rai as the President and the Swadeshi, boycott education resolutions again to be adopted.
+- Moderates wanted the session at Surat in order to avoid Tilak from the presidency, since a leader from the host province could not be session President as Surat was Tilak's home province of Bombay.
+- They wanted Rashbehari Ghosh as the President and then to drop the resolutions on swadeshi, boycott and national education.
+- Both sides adopted rigid positions and split became inevitable. The Congress was now dominated by the Moderates who were committed the goal of self-government and to use only constitutional methods to achieve this goal.
 #### Delhi Darbar
-
+- The Delhi Darbar was an Indian imperial style mass assembly organised by the British to mark the succession of an Emperor or Empress of India. It was held three times: in 1877, 1903 and 1911.
+- The Darbar of 1877 was called Proclamation Darbar. It's organisation was undertaken by Thomas Henry Thornton.
+- It was held to proclaim Queen Victoria as Empress of India by the British. It was attended by the first Earl of Lytton (Viceroy of India), many princely states and intellectuals.
+- This was the culmination of transfer of control of British India from the East India Company to the crown.
+- The Darbar in December 1911 was held to Commemorate the coronation of George V and Mary of Teck and to allow their proclamation as Emperor and Empress of India.
+- In this Darbar, annulment of partition of Bengal and he transfer of India's capital from Calcutta to Delhi Were announced.
 ## First phase of revolutionary activities
 
 ## World War 1 and Nationalist's response
