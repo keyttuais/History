@@ -29,19 +29,39 @@
 > Many novels, essays, patriotic poetry were written by writers like *Bankin Chandra Chatterjee*, Rabindranath Tagore in Bengali, Laxminath Bezbaruah in Assamese, Vishnu Shastri Chplunkar in Marathi, Subramaniyam Bharthi in Tamil.
 > **Bharatendu Harishchandra** (the first writer in Hindi) and **Atlaf Husain Hali** (Urdu writer) were famous in this period. They helped in arousing feeling of patriotism and national consciousness in the country through their writings.
 #### Modern Western Education and Thoughts
+- In the 19th century, many Indians who were educated in Western education learnt and adapted a rational, secular. democratic, and nationalist political viewpoint. They admired and had inspirations fromn contemporary nationalist movements of European nations.
+- These educated people assumed the leadership of the national movement and gave it democratic and modern direction.
+- English language also provided a certain uniformity and community among educated Indians, and helped the speed of ideas between these people.
 
 #### Effects of Contemporary World Movements
-
+- Modern educated Indians found their political guide in Rousseau, Paine, John Stuart Mill and other IW'estern thinkers.
+- They had their political heroes in Mazzini, Garibaldi and Irish nationalist leaders. These movements in Italy. South American nations where new states were being established provided a dream to Indian leaders of a free Indian nation.
 #### Cultural and HIstorical Invocation of India's Past
+- People of India had lost confidence in their own potential of self-government. Byiii,fficials, aid some British thinkers Constantly wrote about this.
+- Nationalist writers, like RG Bhandarkar, R L Mitra and later Swami Vivekananda helped form a new picture and encouraged people to respect their own self and countered this propaganda.
+- Nationalists pointed to Indian heritage of culture and rules of Ashoka, Chandragupta Maurya, Akbar etc. They helped people to have faith, think of self-government, and throwing away chains of British rule over India.
 
 #### Socio-Religious Reform Movements
-
+- In light of Western and modern education, a new temperament developed through which religious, social, and other traditions were relooked and reformed were promoted.
+- Steps were taken by new organisations that were established in the country, e.g., Brahma Samaj, Paramhans Mandali, Prarthana Samaj, Arya Samaj and Mohammedan Literary Society etc.
 #### Apathetic Attitude and Reactionary policies of Lytton
+- There was an attitude of racial superiority by Britishers and deliberate discrimination against Indians was done.
+- Indians felt disgusted by such treatment and actions of officials.
+- Lytton who served as Viceroy from 1876-1880, reduced the age limit of Indian Civil Service (ICS) examimation from 21 years to 18 years to make it difficult for Indians to join in 1876.
+- He held Delhi Darbar in 1877 which was heavily criticised as India was reeling under famine that time.
+- Major Acts such as the Vernacular Act, Arms Act both passed in 1878 instigated a new front of opposition in the country.
 
 #### Illbert Bill Controversy
-
+- During the period of Lord Ripon (1880-84) who came after Lytton, had the controversy of introducing Ilbert Bill.
+- The Bill was supposed to end the judicial disqualification on the basis of race differences but it was shelved because of opposition by Europeans.
+- Thus, Bill's original purpose was gone as it was modified to keep the favour in place of Europeans.
+- This made it clear to nationalist leaders that fairness and justice could not be expected from british Empire and made it clear that only united they could fight against the British.
+- They also learnt how to agitate, put forth demands by agitations of Europeans who were against the Bill.
 ### Political Associations before Establishment of Indian National Congress
-
+- By the 1870s, Indian nationalism had gathered enough strength and momentum to appear as a major force on the Indian political scene.
+- The Indian National Congress., founded in December 1885, was the first organised expression of the Indian National Movement on an all-India scale. However, it had many predecessors.
+- Raja Ram Mohan Roy was the first Indian leader to start an agitation for political reforms in India. Many public associations were started in different parts of India after 1836. Most of these were dominated by rich and aristocratic people and they were regional or local in nature.
+- These usually worked for reforms in administration, association of Indians in administration and spread of education and were usually dealing with petitions being sent to the British Parliament with demands of Indians.
 ### Establishment of Indian National Congress
 
 #### Purpose and Objectives of INC
