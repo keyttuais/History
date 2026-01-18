@@ -63,23 +63,76 @@
 - Raja Ram Mohan Roy was the first Indian leader to start an agitation for political reforms in India. Many public associations were started in different parts of India after 1836. Most of these were dominated by rich and aristocratic people and they were regional or local in nature.
 - These usually worked for reforms in administration, association of Indians in administration and spread of education and were usually dealing with petitions being sent to the British Parliament with demands of Indians.
 ### Establishment of Indian National Congress
-
+- Many Indian people have been planning for an All India Organisation of political nature for workers and activists
+- It was AO Hume, a retired English Civil Servant who founded the Indian National Congress in 1885. AO Hume got in touch with famous Indian leaders of that time, and with their support the first session of Indian National Congress (INC) was held at Bombay in December, 1885.
+- First President of INC was WC Bonnerjee and the first session of Congress was attended by 72 delegates.
+- From here, each Congress session was held every year in December in different states of the country each time.
+- Dadabhai Naoroji was the President of Congress three times. Badruddin Tyabji, Pherozshah Mehta, Bomesh Chandra Dutt, Gopal Krishna Gokhale were ther leaders who became President of INC in its early phase.
+- Before this, two sessions of the Indian National Conference were held in 1883 and 1885 which had representatives from all over India.
 #### Purpose and Objectives of INC
-
+- In the First session of Indian National Congress, President WC Bonnerjee declared these to be its objectives: Training and organisation of public opinion in the country.
+- Promotion of friendly relations between nationalist political workers from different parts of the country.
+- Development and consolidation of the feeling of national unity irrespective of caste, religion or province
+- Formulation of popular demands.
+- Presentation of these demands before the British Government.
 #### Safety Valve Theory
-
+- Various safety valve theorists states that AO Hume founded Indian National Congress. He encouraged it to give a 'safety valve' or a safe path to vent out the increasing discontent and dissatisfaction among educated Indians.
+- He was the one who convinced Lord Dufferin not to hinder the formation of Congress.
+- The 'Safety Valve Theory' is partially correct, as modern historians disagrees with it. They say that Congress represented thoughts of Indian political leaders. They knew, if such an organisation is founded, it would have met with stiff opposition from the British Government.
+- According to Bipin Chandra, Indian leaders cooperated with Hume whose ideas were not evil and had love and respect for India and its poor people.
 #### Attitude of British Power Towards Congress
-
-## Moderate and Extremists phase of Congress
-
-### Moderate Phase (1885-1905)
-
+- British officials were hostile to the rising nationalist movement and had become suspicious of the National Congress.
+- Dufferin tried to persuade Hume to devote Congress to only social work and not political affairs.
+- After Congress leaders refused to limit themselves only to social affairs, British Officials realised Congress had become a tool in hands of Indian leaders, It was the focus of Indian nationalism and they began to criticise it openly and its leaders.
+- British officials from 1887 in Madras Presidency became totally against Congress. Dufferin Jabelled nationalist leaders as disloyal babus, seditious brahmins and violent villains. The Congress was termed as a Factory of sedition.
+- As Congress was uniting people and country, British officials used the policy of divide and rule'. They encouraged Sayyid Ahmed Khan, Raja Shiva Prasad of Benaras and other pro-British individuals to start an Anti-Congress Movement.
+- British also tried to start a communal divergence by putting Hindu and Muslim interests. They offered Concessions to one and repressed the other to put down nationalism.
+- However, these efforts failed to limitise the growth of the national movement.
+## Moderate and Extremists Phase of Congress
+First phase of Indian National Movement's can be further divided into two phases on the basis of policies and actions of Congress.
+### Moderate Phase (1885 to 1905)
+- In the beginning of the Congress, there was dominance of leaders like Dadabhai Naoroji, MG Ranade, Gopal Krishna Gokhale, WC Bonnerjee, SN Banarjee, Pherozshah Mehta etc. They were firm believers in liberalism and a 'moderate' way of struggle.
+- Moderates organised a powerful agitation against nearly all important official economic policies based on colonial structure.
+- They opposed the British attempt to develop in India, making it supplier of raw materials, a market for British manufacturers and a field of investment for foreign capital.
+- Moderates also complained of growing poverty and economic backwardness. They considered British exploitation the reason behind the failure of modern industry and low agricultural productivity to grow.
+- Early moderates complained of the wealth of India being drained and demanded reduction of land revenue in order to lighten the burden of taxation on the peasants.
+- Moderates in the early phase were not in favour of direct attack on the British Government and chose to work under such a system, but criticised the administration and policies.
 #### Methods of Political Work of Moderates
-
-#### Propaganda of Moderates in England
-
+- Early moderates as they believed that if public opinion was created and organised.
+- They presented popular demands to the authorities through petitions, meetings, resolutions and speeches. The authorities would concede these demands gradually and step by step.
+- They used 3Ps- Petitions, Protests and Prayers for these demands.
+- They published newspapers, wrote articles, and showed how British rule was leading to the economic ruin of the country.
+- They criticised British rule in their speeches and sent representatives to different parts of the country to mobilise public opinion.
+- They felt that the British had respect for the ideals of freedom and justice, and so they would accept the just demands of Indians.
+- Therefore, it was necessary to express these demands and make the government avware of the feelings of Indians.
+#### Propaganda of Moderates in England 
+- To persuade the British Government and public opinion in England in Indian favour, many steps were taken by AO Hume, Dadabhai Naoroji and William Wedderburn.
+- For this, many newspapers, mnagazines were started and associations were set up in England.\
+- In 1887, Dadabhai Naoroji established the Indian Reform Committee in England.
+- In 1888, with the association of William Digby, Dadabhai Naoroji set up the Indian Political Agency to hear the grievances of Indians.
+- In 1889, British Committee of Congress was set up, which also published a monthly magazine named India.
+- In 1890, a Committee of Representatives was sent to England by Congress to make representation of Indians in British Parliament. Members of this committee were Surendranath Banerjee, WC Bannerjee and AO Hum. With the efforts of moderates in England, a sympathy was generated towards Indians. In 1879, Lalmohan Ghosh was sent to England to demand the posting of Indians in Civil Services.
+- In the 1889 session of Congress, a Member of British House of Commons, Charles Bradella was present.
 #### Demands of Moderates
-
+- In the early phase of Congress, Moderate leaders did not ask tor independence from British rule but demanded coneessions, and presented their grievaneves which they hoped would be addressed. They asked for reforms in the following fields
+  - Legislatures and its expansion
+  - Posting of Indians in higher offices, exams in India and England for India in Civil Service and its Indianisation,
+  - Removing the bans on press, newspapers and speeches,
+  - Demand for inquiry by Royal Commission on Indian Administration,
+  - Removal of taxes on salt,
+  - Other industrial reforms and their promotion.
+  - Repeal of the Arms Act.
+#### Contributions of Moderates in Indian National Movement
+- According to critics, not much was achieved by early moderates and Congress, as very few reforms were introduced of the demands made by them.
+- It is partially true, but it cannot be said the early phase of moderate and Congress was a failure.
+- It succeeded in creating awareness of the feeling of belonging to a common nation among people.
+- It showed how politically, socially and economically their interests were intertwined.
+- It trained people in political work and popularised among people the idea of democracy, liberty, nationalism and secularism.
+- They exposed the true character of British rule, by showing how they used the economic resources of India for them.
+- Their economic critique of imperialism served as a main base for coming years of national movement against British rule.
+- It laid the foundation for national struggle which was to grow and it provided a political and economnic programme on which later political struggle could be based.
+### Extremists Phase (1905-1919) 
+- Over the years, the trend of radical thoughts grew and an extrenmist approach to national movements started to grow from the 1890s. By 1905 onwards, it took a concrete shape.
 #### Contributions of Moderates in Indian National Movement
 
 ### Extremists Phase (1905-1919)
