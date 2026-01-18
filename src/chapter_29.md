@@ -16,9 +16,18 @@
 - They realised *British Capitalism* was not going to modernise Indian economic systems and British policies were meant to help British Capitalists.
 - Heavy tarrifs, taxation, and transport policies didn't help Indian capitalists, who were competing against industries favoured by the British.
 #### Administrative and Economic Unification
-
+- The sentiments of the nation grew among people after 1857 as India was unified and sense of nationalism emreged during the 19th and 20th centuries.
+- The British gradually introduced a uniform system and modern system of government throughout the country and in this way unified it administratively.
+- As an economic unit, the country had became a unit and the destruction of local self-sufficient and rural economy interlinked the economic life of different parts of the country. If one area was under drought or famine others also felt shortages of food and prices fluctuations.
+- **Introduction of Telegraph, railways** and **unified postal system** had also brought different areas of India together and increased mutual contacts among Indians, particularly among the leaders.
 #### Growth of Press, Newspapers and Literature
-
+- The main medium through which the Indian people of nationalist mindset spread their message of patriotism and modern ideas, thoughts, about social, economic conditions was the press.
+- Many newspapers with nationalist thoughts emerged during the second half of the 19th century.
+- They criticised British policies, perspectives of Indians were put forward, people were involved to unite and work for national betterment.
+- Ideas of self-government, democracy and industries were brought in popular mass discussion by the press and newspapers. It also brought people living in different parts of the country together, and helped them exchange their views
+> Prominent Nationalist Writers of the period :
+> Many novels, essays, patriotic poetry were written by writers like *Bankin Chandra Chatterjee*, Rabindranath Tagore in Bengali, Laxminath Bezbaruah in Assamese, Vishnu Shastri Chplunkar in Marathi, Subramaniyam Bharthi in Tamil.
+> **Bharatendu Harishchandra** (the first writer in Hindi) and **Atlaf Husain Hali** (Urdu writer) were famous in this period. They helped in arousing feeling of patriotism and national consciousness in the country through their writings.
 #### Modern Western Education and Thoughts
 
 #### Effects of Contemporary World Movements
